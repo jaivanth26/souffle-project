@@ -1,0 +1,5 @@
+Preheat oven to 375 F. Butter 6 individual soufflé ramekins and sprinkle with sugar; set aside.
+ Melt the chocolate pieces in a metal bowl on barely simmering water, stirring continuously. (Even a small amount of overheated chocolate will ruin an entire recipe.) Once the chocolate is melted, remove the bowl from the heat and stir in the egg yolks.
+In another bowl, beat egg whites with salt at medium-high speed until soft and shiny. Continue beating the egg whites at high speed, gradually adding the remaining 1/3 cup of sugar, until the egg whites have stiff, shiny peaks.
+Gently fold 1/3 of the egg whites into the chocolate mixture, then gently fold in the remaining egg whites. The chocolate mixture should be light and sparkling and even colorful, without streaks of egg white.
+Pour your soufflé mixture into the prepared ramekins and let stand for up to 30 minutes or cook immediately for 12 to 15 minutes (slightly longer at high altitude) until it is lifted with a crispy outside. Serve with a sprinkle of cocoa or powdered 
